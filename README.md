@@ -1,1 +1,1 @@
-On of my five offerings at llmvisibility.co
+One of my five offerings at llmvisibility.co
